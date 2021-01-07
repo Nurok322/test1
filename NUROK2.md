@@ -1,1 +1,0 @@
-Nurok is not chinese
